@@ -1,0 +1,1 @@
+All right, my name is Emanuel, I am 15 years old, and I am trying to do the online course by Youtube from "Curso em vídeo" taught by Gustavo Guanabara. Here you will find some errors (It's my first attempt being a programmer), but I'll study hard every day, improving my english skills, and obviouslly, my programmer skills. Get enjoyed :)!
